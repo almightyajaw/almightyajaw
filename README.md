@@ -7,6 +7,6 @@
 
   ⠀⠀     ⠀⠀ 
     ⠀⠀     ⠀⠀ 
-    ⠀⠀     ⠀⠀   i'm like, THE ajaw ever bro trust ME. 
+    i'm like, THE ajaw ever bro trust ME. 
  
 </div>
